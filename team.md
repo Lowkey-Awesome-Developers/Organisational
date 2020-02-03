@@ -10,7 +10,7 @@
 	- 
 - Kirill:
 	- kirilos24 _AT_ gmail.com
-	- 07808235886
+	- OH SEVEN 808235886
 - Sam:
 	- sam.clark _AT_ hotmail.com
 	-
